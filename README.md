@@ -17,7 +17,8 @@
 - Building portfolio
   
 📫 How to reach me:
-- OmarFlorendo@gmail.com
+- Gmail: OmarFlorendo@gmail.com
+- Whatsapp: Omar Joseph Florendo
 
 😄 Pronouns:
 - He/Him
